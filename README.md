@@ -1,6 +1,6 @@
 # 🧠 Brainrot Evolution Script 2025 – Auto Farm, Auto Egg, Auto Attack & More
 
-## ⚡ Ultimate Brainrot Evolution Hack – Complete Automation Suite (2025 Update)
+## ⚡ Ultimate Brainrot Evolution Script – Complete Automation Suite (2025 Update)
 
 Experience the **most advanced Brainrot Evolution automation** with our premium script featuring next-gen farming, combat AI, and progression systems. Enjoy **keyless access** and **mobile support** with this cutting-edge Roblox exploit.
 
